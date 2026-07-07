@@ -1,0 +1,2 @@
+# BypasnksBOT
+BOT BYPAS ALL TYPE
